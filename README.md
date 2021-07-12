@@ -2,5 +2,5 @@
 
 📫 **İletişim** </br>
 domatesucan@gmail.com </br>
-[Instagram](https://www.instagram.com/lordomates) </br>
+[Instagram](https://www.instagram.com/lordomates/) </br>
 
